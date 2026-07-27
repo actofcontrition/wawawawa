@@ -1,3 +1,1 @@
-⠀⠀⠀![a](https://64.media.tumblr.com/ceda5b1dd1279937dd987c725179d9f5/032cefdcda6b8f84-50/s100x200/d819129777fe38b9cf8c9bb184209618e8f109ee.gifv) ⠀![aa](https://64.media.tumblr.com/cfbe87d1a2f485da89219595b9197f5b/032cefdcda6b8f84-07/s100x200/43148b320908636f0b818f187fc2a154c0c0684e.gifv) ⠀![aaa](https://64.media.tumblr.com/18afa38c9683c57015ed8c0812090219/032cefdcda6b8f84-fa/s100x200/c02e4d3b82cb1e3c5e3726ea36fd5b0daf845f27.gifv) ⠀![aaaa](https://64.media.tumblr.com/58bd30e1b33118f9539e40b799ff80f2/032cefdcda6b8f84-d8/s100x200/bbd2bbdbc9d4888140a47d7594c69f20108816ea.gifv)
-
-![myparents](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExNWUwbGYya3o3Z2FiN2hkYTYybzE3ejFranZjNmRxeXZuZTNhaGxxOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TfisML2j6dSftvdaB8/giphy.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ![adaksjkdzl](https://github.com/user-attachments/assets/381950ab-a1a2-40eb-a1ab-a562b886bfef)
